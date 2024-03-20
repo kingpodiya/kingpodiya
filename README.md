@@ -6,7 +6,14 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - ❤ 𝙸 𝚕𝚘𝚟𝚎 𝚢𝚘𝚞 𝚋𝚊𝚋𝚢
-<!---
+- 😡 𝙸´𝚖 𝙱𝙰𝙳 𝚋𝚘𝚢
 kingpodiya/kingpodiya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+ 🥰 𝙼𝚈 𝚋𝚛𝚊𝚗𝚌𝚑 𝚒𝚜 𝚗𝚒𝚐𝚘𝚖𝚋𝚘
+ 😛 𝙶𝙸𝚃𝙷𝚄𝙱 𝚒𝚜 𝚖𝚢 𝚎𝚗𝚓𝚘𝚢 𝚕𝚒𝚏𝚎
+ 🌸 𝚖𝚢 𝚜𝚊𝚋𝚓𝚎𝚝 𝚒𝚜 𝙼𝙰𝚇
+😔මම හෙව්වෙ මාව ඔයා මාව😔
+  *😔හොයා ගනිද්දි දුර තරු
+වෙලා කලු කුහර😔
+දුක නොමිලෙ ලැබුනට... 🥺💔🥀
+    සැප ගන්න කට්ටක් කන්නම වෙන්වා මිත්‍රයා...👀
